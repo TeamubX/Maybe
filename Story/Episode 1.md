@@ -13,7 +13,7 @@ around her and the land, an immediate flash happens there and the energies escap
 around the white energy. Though, Mato was surprised by all this, but still she was remembering her phyics concepts more and was trying to explain everything to herself physically. 
 She failed and cried, in a frustated manner.
 <br>Soon the land became normal, but at the spot where the white energy was she found a boy, looking cool, seemed to be having similar age as of Mato. He came closer to Mato, 
-and started [sniffing](https://www.bing.com/search?q=define+sniff&qs=n&form=QBRE&sp=-1&pq=define+s&sc=9-8&sk=&cvid=AC43D11D95834313B51997A599A7570C) her. Mato was scared a lot, a 
+and started [sniffing](https://www.bing.com/search?q=define+sniff) her. Mato was scared a lot, a 
 person she never met before, walks towards her, acts wildely, sniffs her like a dog, she was schocked and scared at the same time. She was quite her mouth was unable to say 
 anything, she just saw many never seen before activities, it was like a nightmare. The boy become unconscious and fell on teh ground, The boy looked helpless, and there was
 something in him taht could even attract a feelingless body. Mato had a heart of gold, she couldn't just leave a helpless and innocent looking human, lieing on the ground. She
@@ -22,4 +22,7 @@ soon he woke up, said nothing and started to walk with her. Mato asked for his n
 before. He was acting way to strangely. Mato was still scared, she heard some footsteps from behind, she got too scared. Her friends surprised her, the boy was standing away from 
 them. Mato told her friends that they have a new member in the team, she didn't tell what actually happened there. They then discussed what to do wih him. They saw around them, 
 the Earth wasn't like how it was before in the morning, thr air, the sky, the land, everything was different. It was night and they needed a shelter, Mato's friends asked her if 
-there is any place nearby. Mato didn't want to discuss about the place she met that boy, but as it was night they needed a shelter, she told that there is a shelter 
+there is any place nearby. Mato didn't want to discuss about the place she where met that boy, but as it was night they needed a shelter, she told that there is a shelter. They 
+then go to the land. While travelling, her friends were trying to talk with the boy, the boy was getting frightened, and he wa hiding behind Mato. Mato, who had a heart of gold, 
+asked her friends to don't disturb him. She showed a smile to the boy and consolidated him. The boy was better than how he was before, after he heard Mato's words. They finally 
+reached the land.
