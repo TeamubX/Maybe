@@ -1,4 +1,4 @@
-# Abesa
+# Abesa (ubX)
 ## Details:
 * One of the two **Main Characters**
 * Most Powerful Character in Gamer 
