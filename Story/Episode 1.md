@@ -24,5 +24,9 @@ them. Mato told her friends that they have a new member in the team, she didn't 
 the Earth wasn't like how it was before in the morning, thr air, the sky, the land, everything was different. It was night and they needed a shelter, Mato's friends asked her if 
 there is any place nearby. Mato didn't want to discuss about the place she where met that boy, but as it was night they needed a shelter, she told that there is a shelter. They 
 then go to the land. While travelling, her friends were trying to talk with the boy, the boy was getting frightened, and he wa hiding behind Mato. Mato, who had a heart of gold, 
-asked her friends to don't disturb him. She showed a smile to the boy and consolidated him. The boy was better than how he was before, after he heard Mato's words. They finally 
-reached the land.
+asked her friends to don't disturb him. She showed a smile to the boy and consolidated him. The boy was better than how he was before, after he heard Mato's words.
+<br>Soon they reached the land, the boy was seeming to be less scared than earlier. There they spent the night, they all were kinda frightened as the place wasn't new for them, 
+Mato was the one who was fightened the most, as she knew something strange existed there. The boy was also scared but not because of the environment, but due to Mato's friends. 
+Mato couldn't sleep as she was frightened the most, and also as  she was the one who asked her friends to come to the forest she was guarding her friends so that they could stay 
+aware, and no danger could come to them. Mato was looking at the sky, it was not normal, she could conclude that this all happened after the *item* was displaced, The moon she was 
+looking at, started fading, not due to clouds it just faded. 
