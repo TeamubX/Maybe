@@ -1,4 +1,4 @@
-# Maybe - Episode 1
+  # Maybe - Episode 1
 ## Characters:
 * Mato - **Lizi**
 * Abesa - **ubX**
@@ -35,9 +35,19 @@ calling them. The boy was weak, he was like he couldn't defend himself, he opene
 The boy couldn't do anything else then calling Mato, he was screaming for help. The only thing in the world he knew was just Mato, Mato tried to talk to him, and consolidated 
 him. He was still scared. Mato was still chasing, she was exhausted too. She was getting unconscious, her eyes were just about to close, but some energies came out of the 
 helpless boy, the energies touched the *item* Mato picked before, and it started to shine, and an immediate flash happens. When Mato opened her eyes, she found her somewhere 
-else 
+else, she was able to see the boy, he was on the ground, in an unconscious condition (as always). The distance wasn't that long, but the path was difficult. While Mato was 
+making her way to the boy, she hearf a deep voice, asking her that if she even knew who she was saving. (Mato replies according to player's choices ("pr")). After hearing Mato's
+answer, he told her the boy's name, **Arbesa**. He asked her that why was she saving him, she even didn't know him. (pr). The deep voice told Mato many precious details about 
+Arbesa, he also told Mato about him, that he is nothing else than one of the Trillions of thoughts in Arbesa's mind. He told that Arbesa should be treated well. His mind has the
+ability to decide the world's future, if he gets too confused it won't be good for anyone. Mato promised, she will try her best for that. She picked up Arbesa and the deep voice
+did his part of job, he sent Mato back to the original world, out of Arbesa's imaginations. Mato took a deep breath after seeing the normal land again, Arbesa was in her arms, 
+she was scared due to many reasons, the world wasn't normal, it was night already and they all didn't have much equipments to stay in forest, and in night even worse. She had to 
+many answers to her friends. And the boy in her arms was a source of mass destruction. She was scared and confused at the same time, drops of sweat were coming out of her 
+forehead. She was on her way to her friends, with Arbesa in her arms. Soon she saw her friends, all waiting for her, she asked them to sleep, and told thatshe will explain 
+everything tomorrow, they all slept, Mato still didn't sleep. The boy opened her eyes, he came closer to Mato and tried to asure Mato and asked her to sleep, (No, he didn't 
+speak anything) Mato was about to sleep but she saw some red and blue light rays were shining from Arbesa, and she couldn't sleep.
 
-
+That's it for EP 1. There will be some edits soon, Also ND suggest some improvements.
 
 
 # [Episode - 2](Episode%202)
